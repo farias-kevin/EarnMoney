@@ -2,14 +2,11 @@
 En este sitio web, comparto contigo una cuidadosa selección de sitios web donde puedes ganar criptomonedas de manera fácil y divertida! Desde completar tareas, minar criptomonedas o participar en Airdrops, tenemos algo para todos los gustos.
 
 ## AIRDROP TELEGRAM - 2024
-### MANUALES
-Estos proyectos consisten en la realización de tareas como por ejemplo hacer clic.
 
-#### Más Top
 - 🐹 Hamster : https://t.me/hamster_kombat_Bot/start?startapp=kentId5352535097
 - 😎 MemeFi : https://t.me/memefi_coin_bot?start=r_1db5d364ff
 - 🏅 YesCoin : https://t.me/theYescoin_bot/Yescoin?startapp=IxnU8M
-- 🐛 Wormfare : https://t.me/wormfare_slap_bot?start=r_5352535097
+  
 - 🏛 W-Coin : https://t.me/wcoin_tapbot?start=NTM1MjUzNTA5Nw==
 
 #### Más Nuevos
