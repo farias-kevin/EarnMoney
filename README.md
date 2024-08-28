@@ -27,3 +27,11 @@ En este sitio web, comparto contigo una cuidadosa selección de sitios web donde
 - 💈 Cex IO : https://t.me/cexio_tap_bot?start=1716323293085556
 - 🎮 Gamee :  https://t.me/gamee/start?startapp=ref_5352535097
 - ⏰ Time Farm : https://t.me/TimeFarmCryptoBot?start=gwHatGu6pzsWPQVT
+- 🦴 Not Bored Puppies : https://t.me/NotBoredPuppies_bot?start=r_5352535097
+- ⛑️ Hexn : https://t.me/hexn_bot/app?startapp=4e73d84d-1628-4aac-8d79-f423789d9ee3
+- 🐶 BabyDoge PAWS : https://t.me/BabyDogePAWS_Bot?start=r_5352535097
+- 🐰Rocky Rabbit : https://t.me/rocky_rabbit_bot/play?startapp=frId5352535097
+- 🙏 ZenCoin : https://t.me/theZencoin_bot/zencoin?startapp=r=5352535097
+- 🏠 City Holder : https://t.me/cityholder/game?startapp=5352535097
+- 🙎Grand Combat : https://t.me/grandcombat_bot/start?startapp=v4Zf4DO3Rt
+- 🤑 Cyber Finance : https://t.me/CyberFinanceBot/game?startapp=cj1ZWmxJc1JEQk5hcW0mdT1yZWY=
